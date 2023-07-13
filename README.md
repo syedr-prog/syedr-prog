@@ -1,0 +1,1 @@
+I am a Syed and I like creating software that could help make people's lives a little easier.
