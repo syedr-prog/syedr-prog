@@ -1,1 +1,1 @@
-I am a Syed and I like creating software that could help make people's lives a little easier.
+I am Syed, and I enjoy developing software to make people's lives easier.
